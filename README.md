@@ -6,7 +6,7 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love hiking and exploring new trails in my free time!
 
-#I'm okechukwu
+
 
 
 <!---
